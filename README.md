@@ -1,4 +1,4 @@
--👋 Hi I'm tecai
+-👋 merhaba ben recai
 - 📲 recai_akn_34/instagram hesabım... 
 
 <!---
